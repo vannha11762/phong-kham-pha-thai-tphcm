@@ -23,7 +23,7 @@
 
 <p>Bản thân&nbsp;thai phụ</p>
 
-<p>Những&nbsp;tình huống&nbsp;mẹ bầu&nbsp;có&nbsp;bản thân&nbsp;có lợi&nbsp;, không mắc&nbsp;những&nbsp;hội chứng&nbsp;nhiễm khuẩn&nbsp;thì&nbsp;giá tiền&nbsp;thường&nbsp;thấp hơn <strong><a href="http://phongkhamphathaihcm.Com/pha-thai-o-benh-vien-dai-hoc-y-duoc-tphcm-co-tot-khong-37.Html">phá thai ở bệnh viện</a></strong>. Đối với&nbsp;những&nbsp;trường hợp&nbsp;bà bầu&nbsp;bị&nbsp;nhiễm khuẩn&nbsp;phụ khoa thì&nbsp;thầy thuốc&nbsp;cần&nbsp;tiến hành&nbsp;điều trị&nbsp;khỏi rồi mới&nbsp;thực hiện&nbsp;phá thai.</p>
+<p>Những&nbsp;tình huống&nbsp;mẹ bầu&nbsp;có&nbsp;bản thân&nbsp;có lợi&nbsp;, không mắc&nbsp;những&nbsp;hội chứng&nbsp;nhiễm khuẩn&nbsp;thì&nbsp;giá tiền&nbsp;thường&nbsp;thấp hơn <strong><a href="http://phongkhamphathaihcm.Com/pha-thai-o-benh-vien-dai-hoc-y-duoc-tphcm-co-tot-khong-37.html">phá thai ở bệnh viện</a></strong>. Đối với&nbsp;những&nbsp;trường hợp&nbsp;bà bầu&nbsp;bị&nbsp;nhiễm khuẩn&nbsp;phụ khoa thì&nbsp;thầy thuốc&nbsp;cần&nbsp;tiến hành&nbsp;điều trị&nbsp;khỏi rồi mới&nbsp;thực hiện&nbsp;phá thai.</p>
 
 <p>Chi phí&nbsp;bỏ thai&nbsp;sẽ&nbsp;phụ thuộc&nbsp;vào&nbsp;rất nhiều&nbsp;yếu tố</p>
 
